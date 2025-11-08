@@ -1,2 +1,2 @@
 # Personal Website
-Personal website currently in progress...
+Interested in my work? Check out my website!
